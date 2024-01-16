@@ -1,2 +1,2 @@
 # jessp.github.io
-HCI472
+Jessica (Jess) Polk
